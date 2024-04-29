@@ -1,5 +1,5 @@
 - 👋 Hi, I’m HeeJu Ha
--  🌱 I’m currently learning Business Analytics at NUS
+-  🌱 I’m currently majoring in Business Analytics at NUS
 
 <!---
 heezxeo/heezxeo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
