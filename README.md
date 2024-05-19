@@ -1,4 +1,4 @@
-## Hi, I'm HeeJu Ha ★彡
+## Hi, I'm HeeJu Ha  ᕬᕬ ִֶָ 
 - Business Analytics Student @ NUS
 - Link to my Portfolio/Website: https://heeju-ha.notionlinker.com
 
